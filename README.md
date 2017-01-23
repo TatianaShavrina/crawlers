@@ -19,6 +19,7 @@
 Остальное 
 
     Прожито ру (?)
+    oral history
     nplus1
     postnauka
     Стихи ру
